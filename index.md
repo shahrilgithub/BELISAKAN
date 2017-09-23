@@ -4,4 +4,6 @@ Team Belisakan sedang memperhalusi sistem dan fungsi berkaitan dengan belisakan.
 
 ## Welcome to Belisakan.com
 
-We Belisakan Team is refining the system and functions related to belisakan.com, We will launch belisakan.com in the near future thanks for your support to us.
+Belisakan Team is refining the system and functions related to belisakan.com, We will launch belisakan.com in the near future thanks for your support to us.
+
+email: shahril (at) belisakan.com
