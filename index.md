@@ -1,4 +1,4 @@
-## senang gambar jual beli | easy snap sell buy
+## hanya dengan langkah mudah tangkap gambar mula jual dapatkan pembeli | only with easy step just snap picture star sell get buyer
 
 # Selamat datang ke Belisakan.com
 
