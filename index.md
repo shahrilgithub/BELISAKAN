@@ -1,5 +1,5 @@
-## hanya dengan langkah mudah tangkap gambar mula jual dapatkan pembeli
-## only with easy step just snap picture star sell get buyer
+## Langkah mudah tangkap gambar mula jual dapatkan pembeli
+## Easy step just snap picture star sell get buyer
 
 # Selamat datang ke Belisakan.com
 
