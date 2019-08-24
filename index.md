@@ -1,3 +1,11 @@
+<html>
+    <head>
+        <meta http-equiv="Content-Type" content="text/html; charset=UTF-8">
+    </head>
+    <body>Verification: b305d50001f39fc0</body>
+</html>
+Make sure that the file
+
 ## Langkah mudah tangkap gambar mula jual dapatkan pembeli
 ## Easy step just snap picture star sell get buyer
 
